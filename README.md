@@ -3,7 +3,7 @@
 
 ## 👋 Hello, I'm Kavish Naran!
 
-📊 Aspiring Data Analyst | 💻 Open to Collaborate
+📊 Aspiring Data Analyst |
 
 ### About Me
 
